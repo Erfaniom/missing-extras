@@ -1,5 +1,5 @@
-- Slay the Princess - Supporters Pack
+- Lysfanga: The Time Shift Warrior (Original Game Soundtrack)
+- Cabernet Artbook
+- Cabernet Soundtrack
+- The Edge of Allegoria Soundtrack
 - Exophobia Soundtrack
-- To Be A King Volume 2 - Official Guide
-- Seed of the Dead: Charm Song Vocal Album
-- Seed of the Dead: Sweet Home Theme Songs
