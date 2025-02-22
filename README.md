@@ -1,5 +1,1 @@
-- Lysfanga: The Time Shift Warrior (Original Game Soundtrack)
-- Cabernet Artbook
-- Cabernet Soundtrack
-- The Edge of Allegoria Soundtrack
 - Exophobia Soundtrack
