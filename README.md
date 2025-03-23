@@ -1,1 +1,2 @@
 - Exophobia Soundtrack
+- Pathfinder: Kingmaker Goodies
